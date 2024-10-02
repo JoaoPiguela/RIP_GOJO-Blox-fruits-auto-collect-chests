@@ -1,0 +1,1 @@
+# RIP_GOJO-Blox-fruits-auto-collect-chests
